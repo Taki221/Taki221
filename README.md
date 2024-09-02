@@ -1,7 +1,7 @@
-👀
-Discord: .tak1.
-Taki/Tak1
-Male
+👀 |
+Discord: .tak1. |
+Taki/Tak1 |
+Male |
 Saint-Petersburg IT student
 <!---
 Taki221/Taki221 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
